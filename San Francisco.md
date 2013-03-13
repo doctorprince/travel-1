@@ -1,3 +1,3 @@
-Visit Alamo Square and the [Full House Houses](http://www.yelp.com/biz/alamo-square-san-francisco)
+ * Visit Alamo Square and the [Full House Houses](http://www.yelp.com/biz/alamo-square-san-francisco)
 
-Then visit the [REAL](http://blog.sfgate.com/scavenger/2009/09/03/the-full-house-address-1709-broderick-party-of-five-digs-for-sale/) Full House House
+ * Then visit the [REAL](http://blog.sfgate.com/scavenger/2009/09/03/the-full-house-address-1709-broderick-party-of-five-digs-for-sale/) Full House House
